@@ -1,1 +1,1 @@
-Manchik project
+Manchik project/

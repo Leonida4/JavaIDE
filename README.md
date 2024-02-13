@@ -1,2 +1,2 @@
 Manchik project/
-kdsfpsdfk
+kdsfpsdfksSANYA
